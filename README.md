@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Wozzer123
+- 👀 I’m interested in Everything spinningrollingattracting growing life as a gift of experience.  
+- 🌱 I’m currently updating Me on here.
+- 💞️ I’m looking to collaborate on learning code
+- 📫 How to reach me  ✨ wozzer123@live.co.uk ✨
+--->
